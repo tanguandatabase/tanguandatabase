@@ -1,4 +1,4 @@
-中国贪官数据库
+文章数据库
 投稿请发邮件到
 tan-data@protonmail.com
 
